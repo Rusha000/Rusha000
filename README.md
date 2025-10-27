@@ -15,4 +15,4 @@
 
 
 ## ⋆fandoms⋆
-## hetalia, tboi, ror2, tf2, golden kamuy, clinical trial, дмо, zzz, genshin, houseki no kuni, one piece, dsmp|minecraft|mineshield
+## [hetalia, tboi, ror2, tf2, golden kamuy, clinical trial, дмо, zzz, genshin, houseki no kuni, one piece, dsmp|minecraft|mineshield]
