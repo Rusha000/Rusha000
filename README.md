@@ -10,4 +10,4 @@
 
 ## ⋆my kinlist⋆
 
-![Image alt](https://imgur.com/a/06LXrOm)
+![Image alt](https://i.pinimg.com/736x/37/12/e5/3712e594707af34bd4bb88e985ae0383.jpg)
