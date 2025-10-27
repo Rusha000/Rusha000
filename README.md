@@ -11,3 +11,8 @@
 ## ⋆my kinlist⋆
 
 ![Image alt](https://i.pinimg.com/736x/37/12/e5/3712e594707af34bd4bb88e985ae0383.jpg)
+
+
+
+## ⋆fandoms⋆
+## hetalia, tboi, ror2, tf2, golden kamuy, clinical trial, дмо, zzz, genshin, houseki no kuni, one piece, dsmp|minecraft|mineshield
