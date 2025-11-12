@@ -1,4 +1,6 @@
 ## *And if you go, I wanna go with you*
+![divider](https://github.com/user-attachments/assets/99c394fa-cab7-4e44-acad-08650855c5d9)
+
 
 ![вуф](https://github.com/user-attachments/assets/e9e5dd37-766f-403f-950d-4883bf2f5838)
 
