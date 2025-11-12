@@ -9,6 +9,8 @@
 
 ![galaxy-divider-divider](https://github.com/user-attachments/assets/132f4a2d-fba0-4f98-9ba2-ce82f3760ea1)
 
+https://komarev.com/ghpvc/?username=your-github-@Rusha000&color=4d5b7b&style=for-the-badge&label=%E2%9C%9E
+
 
 
 ## *Fandoms*
