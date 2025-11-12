@@ -1,15 +1,13 @@
 ## *And if you go, I wanna go with you*
 
-![galaxy-divider-divider](https://github.com/user-attachments/assets/132f4a2d-fba0-4f98-9ba2-ce82f3760ea1)![galaxy-divider-divider](https://github.com/user-attachments/assets/eef341f8-74d2-464b-a115-a002976b1ccb)
-
+![galaxy-divider-divider](https://github.com/user-attachments/assets/132f4a2d-fba0-4f98-9ba2-ce82f3760ea1)
 
 
 ![2d1053d4473e7e51db17ce067d9a21c6](https://github.com/user-attachments/assets/ed256fa3-b816-48dd-96c4-0765905ae0e5)
 
 
 
-![galaxy-divider-divider](https://github.com/user-attachments/assets/132f4a2d-fba0-4f98-9ba2-ce82f3760ea1)![galaxy-divider-divider](https://github.com/user-attachments/assets/eef341f8-74d2-464b-a115-a002976b1ccb)
-
+![galaxy-divider-divider](https://github.com/user-attachments/assets/132f4a2d-fba0-4f98-9ba2-ce82f3760ea1)
 
 
 
