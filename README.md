@@ -3,7 +3,8 @@
 
 ## ⋆____________________☆collect the starshine in your eyes☆ ____________________⋆
 
-![Image alt](https://i.pinimg.com/1200x/5e/92/00/5e92004548322873cf0db055f0c1f306.jpg)
+![Image alt](![2aafbff9c75012c41c2c9abd92d5de35](https://github.com/user-attachments/assets/54526933-212e-4370-a69f-e7839b80f9c3)
+)
 ## ⋆______________________________________☆ ______________________________________⋆
 
 
