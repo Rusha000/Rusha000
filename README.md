@@ -7,6 +7,7 @@
 ![вуф](https://github.com/user-attachments/assets/e9e5dd37-766f-403f-950d-4883bf2f5838)
 
 
+![galaxy-divider-divider](https://github.com/user-attachments/assets/132f4a2d-fba0-4f98-9ba2-ce82f3760ea1)![galaxy-divider-divider](https://github.com/user-attachments/assets/eef341f8-74d2-464b-a115-a002976b1ccb)
 
 
 
