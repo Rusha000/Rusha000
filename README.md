@@ -11,13 +11,25 @@
 
 
 
+<div align="center">
+  
 ![galaxy-divider-divider](https://github.com/user-attachments/assets/132f4a2d-fba0-4f98-9ba2-ce82f3760ea1)
 
+</div>
+
+<div align="center">
+  
 ![](https://komarev.com/ghpvc/?username=your-github-Rusha000&color=4d5b7b&style=for-the-badge&label=✞)
 
+</div>
 
 
+
+<div align="center">
+  
 ## *Fandoms*
+
+</div>
 ## [hetalia, tboi, ror2, tf2, golden kamuy, clinical trial, дмо, zzz, genshin, houseki no kuni, one piece, dsmp|minecraft|mineshield, trigun, alien stage, fullmetal alchemist, mlp, deltarune, beholder, ENA]
 
 
