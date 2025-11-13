@@ -39,10 +39,11 @@
 ## [hetalia, tboi, ror2, tf2, golden kamuy, clinical trial, дмо, zzz, genshin, houseki no kuni, one piece, dsmp|minecraft|mineshield, trigun, alien stage, fullmetal alchemist, mlp, deltarune, beholder, ENA]
 
 
-
-
-
+<div align="center">
+  
 ![8aa6b81997e8677163987a21a017abeb](https://github.com/user-attachments/assets/5e8b251d-ec59-43a9-97da-41aad048996f)
+</div>
+
 
 <div align="center">
   
