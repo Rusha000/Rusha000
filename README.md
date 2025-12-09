@@ -7,7 +7,7 @@
 
 <div align="center">
  
-![](https://media.tenor.com/U8TGxAKNDgkAAAAi/divider.gif)
+![](https://media.tenor.com/INaouFv5F9EAAAAi/divider-star-divider.gif)
 
 
 </div>
