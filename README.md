@@ -43,7 +43,8 @@
 
 <div align="center">
   
-![8aa6b81997e8677163987a21a017abeb](https://github.com/user-attachments/assets/5e8b251d-ec59-43a9-97da-41aad048996f)
+![](<img width="736" height="635" alt="image" src="https://github.com/user-attachments/assets/e57fd72b-1356-4f0b-99fb-e50b2528304d" />
+)
 </div>
 
 
