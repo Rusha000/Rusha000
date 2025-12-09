@@ -7,7 +7,7 @@
 
 <div align="center">
  
-![2d1053d4473e7e51db17ce067d9a21c6](https://tenor.com/ru/view/divider-gif-25651454)
+![](https://tenor.com/ru/view/divider-gif-25651454)
 
 
 </div>
