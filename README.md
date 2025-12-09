@@ -1,6 +1,6 @@
 <div align="center">
   
-## *And if you go, I wanna go with you*
+## *You are like a star in my life*
 
 </div>
 
