@@ -14,6 +14,13 @@
 
 <div align="center">
   
+![](https://komarev.com/ghpvc/?username=your-github-Rusha000&color=b6bdc8&style=for-the-badge&label=❆)
+
+</div>
+
+
+<div align="center">
+  
 ![2d1053d4473e7e51db17ce067d9a21c6](https://i.pinimg.com/736x/3a/19/32/3a193209cb90a43ef0cfdf0362266245.jpg)
 
 </div>
@@ -24,11 +31,7 @@
 
 </div>
 
-<div align="center">
-  
-![](https://komarev.com/ghpvc/?username=your-github-Rusha000&color=b6bdc8&style=for-the-badge&label=❆)
 
-</div>
 
 
 
