@@ -49,11 +49,6 @@
 </div>
 
 
-<div align="center">
-  
-![](<img width="498" height="287" alt="image" src="https://github.com/user-attachments/assets/1dd2a8bf-188e-4acf-869e-62bd332763c3" />)
-
-</div>
 
 <div align="center">
   
