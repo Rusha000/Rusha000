@@ -43,8 +43,7 @@
 
 <div align="center">
   
-![](![1b29c2531521117e4556a974c24bd9dd](https://github.com/user-attachments/assets/af3970d1-dabb-4e60-b35e-fcf92110e234)
-)
+![1b29c2531521117e4556a974c24bd9dd](https://github.com/user-attachments/assets/af3970d1-dabb-4e60-b35e-fcf92110e234)
 
 
 </div>
