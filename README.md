@@ -51,7 +51,8 @@
 
 <div align="center">
   
-![vashwood-vash-the-stampede](https://github.com/user-attachments/assets/a18ab00e-3b60-4344-8802-a6fcaa0e480a)
+![](<img width="498" height="287" alt="image" src="https://github.com/user-attachments/assets/1dd2a8bf-188e-4acf-869e-62bd332763c3" />
+)
 
 </div>
 
