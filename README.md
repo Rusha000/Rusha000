@@ -20,7 +20,7 @@
 
 <div align="center">
   
-![galaxy-divider-divider](https://github.com/user-attachments/assets/132f4a2d-fba0-4f98-9ba2-ce82f3760ea1)
+![](https://media.tenor.com/INaouFv5F9EAAAAi/divider-star-divider.gif)
 
 </div>
 
