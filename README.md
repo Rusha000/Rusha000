@@ -21,7 +21,7 @@
 
 <div align="center">
   
-![2d1053d4473e7e51db17ce067d9a21c6](https://i.pinimg.com/736x/3a/19/32/3a193209cb90a43ef0cfdf0362266245.jpg)
+![2d1053d4473e7e51db17ce067d9a21c6](https://i.pinimg.com/1200x/1d/75/14/1d75144ca3d9faedff7e9d74889a6eb2.jpg)
 
 </div>
 
