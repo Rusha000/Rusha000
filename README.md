@@ -14,7 +14,7 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=your-github-Rusha000&color=b6bdc8&style=for-the-badge&label=❆)
+![](https://komarev.com/ghpvc/?username=your-github-Rusha000&color=b6bdc8&style=for-the-badge&label=ꕥ)
 
 </div>
 
